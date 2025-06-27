@@ -1,4 +1,4 @@
-![Walmart Chicks](https://github.com/user-attachments/assets/d2a78d27-7b8b-436e-93fe-83fbea07ccd4)
+![Math Guy AI Enhanced](https://github.com/user-attachments/assets/e18b48c1-86b7-4980-b3e7-f99089bf4e2a)
 
 Sourceduty engages with meme culture through a creative, niche lens, blending digital art and tech-savvy humor into meme-style content primarily shared on platforms like DeviantArt. Rather than aiming for mass virality, Sourceduty uses memes as a form of artistic expression and community engagement, often incorporating elements from its broader projects in digital art, 3D modeling, and AI. This approach positions memes not just as fleeting internet jokes, but as stylized, intentional pieces of content that reflect the brand’s aesthetic and values. While their meme presence isn’t widespread, it aligns with a curated, design-driven identity that speaks to a specific audience interested in tech-art fusion.
 
